@@ -1,5 +1,5 @@
 ![68747470733a2f2f63617073756c652d72656e6465722e76657263656c2e6170702f6170693f747970653d776176696e6726636f6c6f723d303062666266266865696768743d3132302673656374696f6e3d686561646572](https://github.com/user-attachments/assets/0f5987b2-0af4-4412-94e6-33acdb10cf4a) 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=Hello,+my+name+is+Paulo+Ramos.;I+am+56+years+old.;I+am+from+Brazil.+PE.;Terminei+dois+cursos+no+Coursera.;Análise+de+dados+e+Suporte+em+TI.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=Hello,+my+name+is+Paulo+Ramos+Oliveira;I+am+from+Brazil,+PE.;I+'ve+finished+2+courses+on+Coursera;Data+Analysis+and+IT+Support.)](https://git.io/typing-svg)
 
 ![68747470733a2f2f63617073756c652d72656e6465722e76657263656c2e6170702f6170693f747970653d776176696e6726636f6c6f723d303062666266266865696768743d3132302673656374696f6e3d686561646572](https://github.com/user-attachments/assets/0f5987b2-0af4-4412-94e6-33acdb10cf4a)
